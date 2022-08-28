@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JamMax11
 - 👀 I’m interested in learning how to write code
-- 🌱 I’m currently learning ...rid bits just by exploring the net.
+- 🌱 I’m currently learning ...tid bits just by exploring the net.
 - 💞️ I’m looking to collaborate on ...darkweb archives
 - 📫 How to reach me ... jamitbdpp@gmail.com or 972 846 7911
 
